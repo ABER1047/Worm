@@ -8,7 +8,7 @@
 
 ![preview_1](preview1.gif)
 
-#### ▼ 관련 
+#### ▼ 관련 영상
 
 https://youtu.be/ySWkuhN4KbY
 
