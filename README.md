@@ -8,6 +8,8 @@
 
 ![preview_1](preview1.gif)
 
+#### ▼ 관련 
+
 https://youtu.be/ySWkuhN4KbY
 
 #
